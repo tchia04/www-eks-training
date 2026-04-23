@@ -1,1 +1,1 @@
-# course-it532-it533
+www.eks.training
